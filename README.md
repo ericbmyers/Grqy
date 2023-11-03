@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Grqy
 - 👀 I make websites.
-- 💞️ I love you very much!
+- 💞️ Thanks for stopping by!
 - 📫 https://www.linkedin.com/in/eric-myers-574402252/  
 
 <!---
